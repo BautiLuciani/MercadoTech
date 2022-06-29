@@ -1,2 +1,2 @@
 # MercadoTech
-Grupo 10: Axl Stemphelet, David Cárdenas, Bautista Luciani
+Grupo 10: Axl Stemphelet, David Cárdenas :thinking:, Bautista Luciani
